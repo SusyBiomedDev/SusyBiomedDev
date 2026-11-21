@@ -16,4 +16,4 @@
 
 ## 📫 Contact
 
-[LinkedIn](in/susana-neves-domingues) · [ORCID](https://orcid.org/0000-0003-0581-783X) · [ResearchGatae](https://www.researchgate.net/profile/Susana-Domingues-8?ev=hdr_xprf)
+[LinkedIn](https://www.linkedin.com/in/susana-neves-domingues/) · [ORCID](https://orcid.org/0000-0003-0581-783X) · [ResearchGatae](https://www.researchgate.net/profile/Susana-Domingues-8?ev=hdr_xprf)
